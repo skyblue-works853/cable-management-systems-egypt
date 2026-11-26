@@ -7,3 +7,6 @@ Egyptian metal forming factory: cable trays, ladders, baskets and cable manageme
 [مصنع نظم إدارة الكابلات المصرية الألمانية لتشكيل المعادن](https://egygerfactory.com) يصنع حوامل الكابلات (Cable Tray) وسلالم الكابلات وسلال الكابلات والترانكات والكابولي وملحقاتها بجودة عالية في مصر، بالصاج المجلفن البارد والساخن وحسب الطلب.
 
 Website: [Egyptian German Metal Forming, cable tray manufacturer in Egypt](https://egygerfactory.com)
+
+
+Product: [كابل باسكت في مصر](https://egygerfactory.com/المنتجات/كابل-باسكت/)
